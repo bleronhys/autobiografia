@@ -1,0 +1,1 @@
+Nje CV shume e shkurter rreth meje!
